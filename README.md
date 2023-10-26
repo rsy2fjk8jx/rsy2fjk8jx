@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rsy2fjk8jx
+- 👀 I’m interested in some stuff
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: rsy@2fjk8jx.onmicrosoft.com
